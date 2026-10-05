@@ -1,0 +1,2 @@
+# premium-engine-cowl-001-engine-cowl-forming-baffle-c
+Tired of losing track of your engine cowl forming specs and baffle templates across scattered notes, emails, and bench sketches? This Notion studio centralizes every detail so you can focus on the craft, not the chaos.  The Engine Cowl Forming &amp; Baffle Craft Studio transforms your workflow by combining project tracking, material logs, and visual re
